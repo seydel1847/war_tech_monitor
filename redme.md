@@ -1,0 +1,1 @@
+Monitorowanie warunków tech.
